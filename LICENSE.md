@@ -1,4 +1,4 @@
-# 
+# new Blender for PC | Blender for Windows Panel | scripting + compositing offers the most advanced Blender for PC | Blender for Windows panel, with scripting and compositing. Ideal
 
 
 
